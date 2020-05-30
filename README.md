@@ -1,3 +1,3 @@
-# SWE/Data Resumé
+# Resumé
 
 Created in Adobe Illustrator.
