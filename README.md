@@ -1,3 +1,3 @@
-# Software Engineering Resumé
+# SWE/Data Resumé
 
 Created in Adobe Illustrator.
